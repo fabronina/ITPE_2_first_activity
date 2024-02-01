@@ -1,1 +1,1 @@
-Nina Fabro - BSIT 1-1
+Ma. Nina E. Fabro, BSIT 1-1, ITPC 3, Web development
